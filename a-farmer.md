@@ -1,4 +1,4 @@
-![1583054217484](C:\Users\魏征\AppData\Roaming\Typora\typora-user-images\1583054217484.png)
+![1583059116924](1583059116924.png)
 
 项目名称:”a farmer”工作室 
 负责人：魏征 
